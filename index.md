@@ -1,6 +1,4 @@
-## Welcome to GitHub Pages
-
-You can use the [editor on GitHub](https://github.com/travestiizmir/travestiizmir.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+## İzmir Travestileri, Travesti İzmir, İzmir Travesti
 
 Travesti İzmir, İzmir Travesti, [İzmir Travestileri](https://izmir.fun/) 
 
